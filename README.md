@@ -1,2 +1,2 @@
 # purin
- Hi,I'm Xiaoming ,from Shanxi province.
+ Hi,I'm Xiaoming ,from Shanxi province.thanks.
